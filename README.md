@@ -4,3 +4,8 @@
 
 *****
 
+https://github.com/o2-qrz/bahes-human-sovereignty-education/blob/main/README.md
+
+
+
+*****
